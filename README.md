@@ -1,5 +1,4 @@
-### Hi there 👋
-
+[![210903-GitHub-profile-공고2](https://user-images.githubusercontent.com/1946658/131947964-f463a484-64db-48cc-9a4d-49e88f0f64d3.jpg)](https://career.hyperconnect.com/job/7fa7e67c-f85d-4e5c-8bef-85a222e5a4b4)
 <!--
 **Shindongri/shindongri** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
